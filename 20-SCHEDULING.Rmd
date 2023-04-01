@@ -1,0 +1,25 @@
+# SCHEDULING
+
+## Number of Regular Season Games.
+
+Each Team agrees that in no event will it play more than 82 Regular Season games.
+
+## Location of Games.
+
+During the Regular Season, games between NBA Teams may be played at any location, within or outside the United States and Canada. The NBA shall supervise the arrangements made with respect to games played outside the United States and Canada and the accommodations provided to players participating in such games.
+
+## Holidays.
+
+(a) No Team will be required to play a game on December 25, unless such game is to be telecast or cablecast nationally.
+(b) Games scheduled to be played on January 1 and Good Friday shall not commence prior to 6 p.m. (local time), unless the Players Association consents thereto, which consent shall not be unreasonably withheld. The Players Association will, upon request, consent to the earlier commencement of two games on each of such dates if such games are to be broadcast or cablecast nationally, and provided that the Teams involved are in the same time zone or otherwise in close geographic proximity.
+(c) Teams at home on December 25 and January 1 (each, a "Holiday") may, but shall not be required to, conduct a practice on either (or both) of such Holidays, provided: (i) the Team's players have requested that they practice on the Holiday, as communicated to the Team by the Team's player representative; and (ii) within seven (7) days before or after the Holiday, the Team's players are provided with a "day off" — i.e., the Team will not conduct any practice, including any optional practice, on such date, and the Team will not have a scheduled game on such date.
+(d) Teams shall not depart for an away game or series of away games prior to 3 p.m. (local time) on December 25 or January 1, unless reasonable transportation arrangements for such game or games cannot be made at or after 3 p.m. (local time).
+
+## Travel.
+
+The NBA and its Teams shall use their best efforts to devise reasonable travel schedules when Regular Season games are played outside the United States and Canada. No Team shall be required to play a scheduled game on the same day that such Team has traveled across two time zones, except in unusual circumstances and unless the Players Association consents thereto, which consent shall not be unreasonably withheld.
+
+## Training Camp.
+
+(a) When players (other than Rookies) are required to report to training camp pursuant to paragraph 2 of the Uniform Player Contract on the twenty-ninth day prior to the first game of an NBA Regular Season, they may only be required to attend a team dinner and team meetings, to participate in photograph sessions, and to submit to a physical examination on that day.
+(b) Notwithstanding the foregoing, if a Veteran Player is under contract to a Team that is scheduled during a particular NBA Season to participate outside North America in a Pre-Season Exhibition game or a Regular Season game during the first week of the Regular Season, the player will not be required to attend training camp during that particular NBA Season earlier than 2 p.m. (local time) on the thirty-second day prior to the first game of an NBA Regular Season. Rookies may be required to attend training camp at an earlier date, but no earlier than ten (10) days prior to the date that Veterans are required to attend.

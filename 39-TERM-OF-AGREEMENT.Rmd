@@ -1,0 +1,28 @@
+# TERM OF AGREEMENT
+
+## Expiration Date.
+
+Except as provided in Section 2 of this Article XXXIX or as otherwise expressly provided herein, this Agreement shall be effective from January 20, 1999 and shall continue in full force and effect through June 30, 2004.
+
+## NBA Option to Extend.
+
+The NBA shall have the option to extend this Agreement for one (1) year (i.e., through June 30, 2005) by serving written notice of its exercise of such option on the Players Association on or before December 15, 2003.
+
+## Termination by Players Association/Anti-Collusion.
+
+In the event the conditions of Article XIV, Section 16 are satisfied, the Players Association shall have the right to terminate this Agreement. To execute such a termination, the Players Association may serve upon the NBA written notice of termination within thirty (30) days after the System Arbitrator's report finding the requisite conditions (pursuant to Article XIV, Section 16) becomes final and any appeals therefrom have been exhausted. In the absence of a System Arbitrator, the Players Association shall have the option to execute such a termination by serving upon the NBA written notice of such termination within thirty (30) days after any decision by a court finding the requisite conditions (pursuant to Article XIV, Section 16). In the latter situation, if the finding of the court is reversed on appeal, the Agreement shall be immediately reinstated and both parties reserve their rights with respect to any conduct by the other party during the period from the termination notice to the date upon which the Agreement was reinstated.
+
+## Termination by Players Association/Average Player Salary
+
+(a) If with respect to the 1999-2000 NBA Season, or any Season thereafter during the term of this Agreement, the Players Association establishes in a proceeding before the System Arbitrator that the Average Player Salary for such Season was less than the average player salary for the last fully-completed season in Major League Baseball ("MLB"), the National Football League ("NFL") or the National Hockey League ("NHL"), it shall have the right the terminate this Agreement by serving written notice of termination on the NBA within thirty (30) days after the System Arbitrator's determination becomes final and any appeals therefrom have been exhausted. A proceeding under this Section 4(a) shall be commenced on or before the September 1 immediately following the Season to which it pertains, and any termination shall be effective as of the June 30 following the NBA's receipt of the required notice.
+(b) In any proceeding brought pursuant to this Section 4:
+    (i) Calculation of the Average Player Salary shall be based upon Total Salaries and Benefits less Benefits as set forth in the Audit Report for the NBA Season immediately preceding the commencement of such proceeding (or, if that Audit Report has not been submitted to the parties by the time the proceeding is commenced, on Estimated Total Salaries and Benefits less Benefits (as estimated) as set forth in the Interim Audit Report for the NBA Season immediately preceding the commencement of the proceeding); and
+    (ii) Calculation of the average player salary in the other professional sports leagues shall be based upon the total team salaries for the last fully-completed season in each such league, with those salaries computed in the manner that Salary is computed in accordance with the provisions of this Agreement (except that bonuses shall be included only to the extent actually earned), and with such total team salaries being divided by (x) for MLB, the number of teams in MLB multiplied by 26, (y) for the NFL, the number of teams in the NFL multiplied by 56, and (z) for the NHL, the number of teams in the NHL multiplied by 26.
+
+## Mutual Right of Termination.
+
+If at any time during the term of this Agreement any provision contained in Article VII, X, XI and XIV of this Agreement is enjoined, vacated, declared null and void or is rendered unenforceable by any court of competent jurisdiction, then either the NBA or the Players Association shall have the right to terminate this Agreement by serving upon the other party written notice of termination within thirty (30) days.
+
+## No Obligation to Terminate; No Waiver.
+
+The grant to either party of a right or option to terminate pursuant to the provisions of this Article shall not carry with it the obligation to exercise that right or option; and the failure of the NBA or the Players Association to exercise any right or option to terminate this Agreement with respect to any playing season in accordance with this Article shall not be deemed a waiver of or in any way impair or prejudice the NBA or the Players Association's right or option, if any, to terminate this Agreement in accordance with this Article with respect to any succeeding season.

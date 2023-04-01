@@ -1,0 +1,18 @@
+# NBA ALL-STAR GAME
+
+## Awards.
+
+(a) For their participation in the All-Star Game, during the 1999-2000 and 2000-01 Seasons, players on the winning team shall each receive \$15,000 and players on the losing team shall each receive \$7,500. For their participation in the All-Star Game during the 2001-02, 2002-03, 2003-04, and (if applicable) 2004-05 Seasons, players on the winning team shall each receive \$20,000 and players on the losing team shall each receive \$10,000.
+(b) For their participation in the Rookie All-Star Game, during the 1999-2000 and 2000-01 Seasons, players on the winning team shall each receive \$4,000 and players on the losing team shall each receive \$3,000. For their participation in the Rookie All-Star Game during the 2001-02, 2002-03, 2003-04, and (if applicable) 2004-05 Seasons, players on the winning team shall each receive \$7,500 and players on the losing team shall each receive \$5,000.
+
+## Player Guests.
+
+Each player who participates in the All-Star Game, Rookie All-Star Game, or any All-Star Skills Competition may invite a guest, who shall be reimbursed for the cost of round-trip first-class air transportation between the home city of the Team by which such player is employed and the site of the All- Star Game, Rookie All-Star Game or All-Star Skills Competition.
+
+## Players Not Participating in All-Star Activities.
+
+Players not invited to participate in the All-Star Game or the Rookie All-Star Game shall have three days off during the All-Star Game break. Players who do not participate in any All-Star Skills Competition shall have three days off during the All-Star Game break.
+
+## All-Star Skills Competitions.
+
+The All-Star Skills Competitions that take place during any All-Star Weekend shall be selected by the NBA; provided, however, that before adding any new event to the All-Star Skills Competitions that take place during any All-Star Weekend (i.e., an event different from any conducted by the NBA during any All-Star Weekend held prior to the 1998-99 Season), the NBA shall obtain the consent of the Players Association, which consent shall not be unreasonably withheld.
