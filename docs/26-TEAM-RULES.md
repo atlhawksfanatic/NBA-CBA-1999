@@ -1,0 +1,3 @@
+# TEAM RULES
+
+Each Team may maintain or establish rules with which its players shall comply at all times, whether on or off the playing floor; provided, however, that such rules are in writing, are reasonable, and do not violate the provisions of this Agreement or the Uniform Player Contract.

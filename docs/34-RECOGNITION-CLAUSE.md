@@ -1,0 +1,3 @@
+# RECOGNITION CLAUSE
+
+The NBA recognizes the Players Association as the exclusive collective bargaining representative of persons who are employed by NBA Teams as professional basketball players (and/or who may become so employed during the term of this Agreement or any extension thereof); and the Players Association warrants that it is duly empowered to enter into this Agreement for and on behalf of such persons. The NBA and the Players Association agree that, notwithstanding the foregoing, such persons and NBA Teams may, on an individual basis, bargain with respect to and agree upon the provisions of Player Contracts, but only as and to the extent permitted by this Agreement.
